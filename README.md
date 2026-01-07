@@ -1,0 +1,1 @@
+# Swish-Mac-License-Lifetime-Software
